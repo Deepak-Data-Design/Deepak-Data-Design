@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Deepak
+- 👀 I’m interested in Data Analyst and Graphic designing
+- 🌱 I’m currently learning Power BI for Business Analyst and Adobe Photoshop and Illustrator as a hobby
+- 💞️ I’m looking to collaborate on Understanding the concepts of Data Analyst and Grow in that Particular field
+- 📫 How to reach me? Well here's my Linkedin Profile: www.linkedin.com/in/deepak7347
+- ⚡ Fun fact: There's always an opportunity around you. All it need for you to initiate putting efforts to grab one.
